@@ -33,15 +33,19 @@ to "give credibility" to the testimony given, not for substantial evidence to sh
 https://www.supremecourt.gov/DocketPDF/18/18-7327/80240/20190114123131898_00000007.pdf
 
 
-NBC News has a 16 part investigation into these types of things 
+NBC News 16 part investigation "Doctors trained to spot child abuse can save lives. But when they get it wrong, families are torn apart, NBC News and the Houston Chronicle found in an investigation."
+
 https://www.nbcnews.com/news/us-news/do-no-harm
 
 
 List of documents linked above
 
 Supreme Court Case
+
 https://www.supremecourt.gov/DocketPDF/18/18-7327/80240/20190114123131898_00000007.pdf
 Atzemis Presentation
+
 https://coxcollege.edu/wp-content/uploads/2019/05/Adrienne-Atzemis-Recognizing-and-Responding-to-Child-Abuse-Cox-Trauma-Conference-2019-without-images-for-handout.pdf
 Court Ruling where Parker family got child back
+
 https://s3.documentcloud.org/documents/6567457/Parker-ruling.pdf
