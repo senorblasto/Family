@@ -1,6 +1,5 @@
 I will continue adding things that seem important enough to show the lawyer here, all 3 documents can be easily downloaded at the bottom
-NBC News has a 16 part investigation into these types of things 
-https://www.nbcnews.com/news/us-news/do-no-harm
+
 
 Note to self:  Find the case that was identical and Atzemis made ALL the same claims about CT scans/ X-rays that contradict the available literature.
 ## Good News
@@ -34,6 +33,8 @@ to "give credibility" to the testimony given, not for substantial evidence to sh
 https://www.supremecourt.gov/DocketPDF/18/18-7327/80240/20190114123131898_00000007.pdf
 
 
+NBC News has a 16 part investigation into these types of things 
+https://www.nbcnews.com/news/us-news/do-no-harm
 
 
 List of documents linked above
