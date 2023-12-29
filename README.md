@@ -22,7 +22,7 @@ https://s3.documentcloud.org/documents/6567457/Parker-ruling.pdf
 https://coxcollege.edu/wp-content/uploads/2019/05/Adrienne-Atzemis-Recognizing-and-Responding-to-Child-Abuse-Cox-Trauma-Conference-2019-without-images-for-handout.pdf
 
 
-## Attorney in a Supreme Court case called in to question Atzemis's credibility as a witness
+## Attorney in a Supreme Court case called into question Atzemis's credibility as a witness
 
 #### "The Science Community recognizes **Dr. Atzemis'** field of expertize as "Junk Science,
 " and that the testimony is contrary to the findings of the American Pediatrics Association (which she claims to quote from). Dr. Atzemis' testimony is ONLY to improperly "bolster" the testimony of the alleged victim and
