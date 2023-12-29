@@ -43,9 +43,11 @@ List of documents linked above
 Supreme Court Case
 
 https://www.supremecourt.gov/DocketPDF/18/18-7327/80240/20190114123131898_00000007.pdf
+
 Atzemis Presentation
 
 https://coxcollege.edu/wp-content/uploads/2019/05/Adrienne-Atzemis-Recognizing-and-Responding-to-Child-Abuse-Cox-Trauma-Conference-2019-without-images-for-handout.pdf
+
 Court Ruling where Parker family got child back
 
 https://s3.documentcloud.org/documents/6567457/Parker-ruling.pdf
