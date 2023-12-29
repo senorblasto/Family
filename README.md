@@ -1,3 +1,12 @@
+## Good News
+
+I've been having a real problem find good news to show you guys, I'm sure you've found the same... 
+BUT I did find this story known as the Parker ruling
+
+This family was in a similar situation where a baby had broken bones.  
+They had to fight in court for 7 months, but they got their baby back.  The document is short and its worth reading how the case was dismissed.  
+
+https://s3.documentcloud.org/documents/6567457/Parker-ruling.pdf
 
 ## Presentation created by Atzemis ###
 
@@ -18,3 +27,11 @@ to "give credibility" to the testimony given, not for substantial evidence to sh
 ![atz](https://github.com/senorblasto/Family/assets/15737644/24f8aa3e-66e5-41a6-a8af-3619dccabf2e)
 
 https://www.supremecourt.gov/DocketPDF/18/18-7327/80240/20190114123131898_00000007.pdf
+
+
+
+
+List of documents linked above
+https://www.supremecourt.gov/DocketPDF/18/18-7327/80240/20190114123131898_00000007.pdf
+https://coxcollege.edu/wp-content/uploads/2019/05/Adrienne-Atzemis-Recognizing-and-Responding-to-Child-Abuse-Cox-Trauma-Conference-2019-without-images-for-handout.pdf
+https://s3.documentcloud.org/documents/6567457/Parker-ruling.pdf
