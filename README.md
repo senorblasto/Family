@@ -1,3 +1,6 @@
+I've got more than this, I will continue adding things that seem important enough to show the lawyer here, all 3 documents can be easily downloaded at the bottom
+NBC News has a 16 part investigation into these types of things 
+https://www.nbcnews.com/news/us-news/do-no-harm
 ## Good News
 
 I've been having a real problem find good news to show you guys, I'm sure you've found the same... 
